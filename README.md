@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @itzgunzaki or just aki
 - 👀 I’m interested in Manga/Anime
 - 🌱 I’m currently learning : How to love myself
-- 📫 How to reach me : ig - @gunzaki_ / dc - gunzaki_ / fb = Aki Maneiga
+- 📫 How to reach me : ig - @gunzaki_ / dc - gunzaki_ / fb - Aki Maneiga
 - 😄 Pronouns: ogag
 
 <!---
